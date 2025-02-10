@@ -11,4 +11,4 @@ gmail : charlie960906@Gmail.com
 
 官網:[hyjdevelop.com](hyjdevelop.com)
 
-_©HYJdevelop版權所有 請勿抄襲_
+_© 2025 HYJdevelop_ 
