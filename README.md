@@ -6,7 +6,6 @@
 ## *請記得程式中的路徑記得改*
 
 聯絡方式：
-FB : [老黃](ceofb.hyjdevelop.com) 
 Ig : [hyjcharlie960906](https://www.instagram.com/hyjcharlie960906/?hl=zh-tw)
 
 gmail : charlie960906@Gmail.com
